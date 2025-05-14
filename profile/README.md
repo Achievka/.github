@@ -6,6 +6,6 @@
 
 The self-improvement revolution awaits you at the end of 2025.
 
-© 2023 to present
+© Achievka 2023–2025.
 
 </div>
